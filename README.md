@@ -1,0 +1,1 @@
+# OpenNorma-privacy-policy
